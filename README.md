@@ -1,0 +1,1 @@
+# Sosiologi-kelas-x-semester-2-
